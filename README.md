@@ -28,7 +28,6 @@
 
 ### 📬 Let's Connect!
 📧 Reach me at: [shahjenil76@gmail.com](mailto:shahjenil76@gmail.com)  
-🌐 Portfolio: (coming soon or add your website link here)  
 📚 I’m always open to learning, teaching, and building — let's grow together!
 
 <!---
